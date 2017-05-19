@@ -1,0 +1,2 @@
+# Should-know-everyone-to-the-Lord
+A little light can light up a lot. A little light burning offers direction. This little light has a big meaning. Jesus presents us with a responsible task. If we proclaim Jesus’ message, we provide others with light. Be a “shining example” and be alive in the little things so that your friends can see you saying: „There is something about being a Christian; it emits something from God’s light and love“.
